@@ -8,7 +8,7 @@
 > - Oral 2 : 30% 
 > - Written : 30% 
 > - Supplementary Written : ?
-> - eQuiz (Friday of Week 10) 
+> - eQuiz (Friday of Week 10) : 10%
 
 <b>Grade:</b> (Audited)
 
