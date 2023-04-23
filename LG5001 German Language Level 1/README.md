@@ -12,5 +12,6 @@
 <b>Quick Comments:</b>
 - Get used to there being 3 grammatical genders
 - Be acquainted with the Akkusativ case, and learn how the Dativ case works
+- Quite fun and light-hearted (much more so than my core NBS/SCSE modules)
 
 <b>Grade:</b> A+
