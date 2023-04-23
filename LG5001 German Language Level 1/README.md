@@ -9,4 +9,8 @@
 > - Written : 30% (46/50)
 > - eQuiz (Friday of Week 10) : 10% (10/10)
 
+<b>Quick Comments:</b>
+- Get used to there being 3 grammatical genders
+- Be acquainted with the Akkusativ case, and learn how the Dativ case works
+
 <b>Grade:</b> A+
